@@ -1,12 +1,43 @@
-# 导航站 
-### [heiguodh.top](https://www.heiguodh.top) 　　　　　　　　　　　 [heiguodh.xyz](https://www.heiguodh.xyz)
+
+黑果导航
+#
+https://www.heiguodh.top
+
+https://www.heiguodh.xyz
+#
 # 在线视频
 # ↓↓↓↓↓↓
-网曝视频 https://www.aoditv.top/
+黑果影视
+# ↓↓↓↓↓↓
+ https://www.heiguotv.com（需开机场）
 
+ https://www.heiguotv.monster
+
+ https://www.heiguotv.icu
+
+ https://www.heiguotv.buzz
+
+ https://www.heiguotv.xyz
+#
+红果影视
+# ↓↓↓↓↓↓
+ https://www.hongguotv.com/
+
+ https://www.hongguotv.monster
+
+ https://www.hongguotv.top/
+
+ https://www.hongguotv.xyz
+#
+萝莉世界
+# ↓↓↓↓↓↓
+
+ http://www.luolishijie.xyz
+
+ http://www.luolishijie.buzz
+
+#
 撸管神器 https://www.baomatv.top
-
-福利精选吧 https://www.benchitv.top/
 
 网红约拍av https://www.bentiantv.top
 
@@ -32,16 +63,6 @@
 
 色司机 https://www.linkentv.top/
 
-色狗巴视频 https://www.xiandaitv.top
-
-岛国无码 https://www.luhutv.top/
-
-美色全球 https://www.qiruitv.top
-
-俺来也视频 https://www.qiyatv.top/
-
-青青草视频 https://www.yematv.top
-
 五福凹凸 https://www.baiduzy.top/
 
 黑丝诱惑 https://www.baihezy.top
@@ -64,23 +85,7 @@
 
 私人会所 https://www.gugezy.top/
 
-无限快进 https://www.heiguotv.com
-
-刁蛮公主 https://www.heiguotv.monster/
-
-藏妻葛 https://www.heiguotv.top
-
-叶春楼 https://www.heiguotv.xyz/
-
 少女屋 https://www.hetaozy.top
-
-女神TV https://www.hongguotv.com/
-
-人人色 https://www.hongguotv.monster
-
-威猛先生 https://www.hongguotv.top/
-
-午夜剧场 https://www.hongguotv.xyz
 
 男欢女爱 https://www.huluzy.top/
 
